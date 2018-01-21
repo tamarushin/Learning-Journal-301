@@ -1,0 +1,3 @@
+# This week was hard for me because I needed a break between 201 and 301. I didn't need rest as much as time to do prework and get set up better. and then half way thru the week I had a health attack that cost me a day and has put me further behind. The good news is I have MLK day to continue to get caught up and I am meeting with a tutor for a couple of hours, I have a whole new attitude today. At the end of the week I was discouraged and scared but as I write this, I truly believe this is the feild I am going to rock in (once it makes sense.)
+
+# I can't repeat 301 like I did 201 because I won't be given the funds from TRA and my unemployment will stop so I am all in!!
